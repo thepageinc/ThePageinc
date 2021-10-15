@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Cryptaryan
+- 👋 Hi, I’m ThePageinc
 - 👀 I’m interested in computer sciences, space, music and happy ending
 - 🌱 I’m currently learning a lot since 1977
 - 💞️ I’m not looking to collaborate on anything specific..
